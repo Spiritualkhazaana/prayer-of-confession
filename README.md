@@ -1,1 +1,3 @@
-# prayer-of-confession
+# *The Prayer of Confession — A deep, Grace-filled Devotional on Psalm 51*
+## *“The Prayer of Confession: How to Cry out to God for Mercy (A Devotional Commentary and Prayers from Psalm 51)” by T. Kevin Bryan is a powerful, scripture-saturated guide to biblical repentance, spiritual restoration, and walking daily in the truth and assurance of God’s mercy. Drawing from David’s deeply honest prayer in Psalm 51, Bryan leads readers step by step through confession—not just as a one-time event, but as a lifestyle rooted in humility, transparency, and the pursuit of genuine intimacy with God. Here is a comprehensive review, chapter-by-chapter summary, and a look at the spiritual aims and message Bryan shares for every seeker.* [Explore…](https://spiritualkhazaana.com/the-prayer-of-confession-a-deep-devotional/)
+## #prayerofconfession #mercyofgod #godsgrace #spiritualrenewal #spiritualjourney #trustinggod
